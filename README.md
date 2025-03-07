@@ -1,3 +1,4 @@
 # Pacardeeeee
 
-<h2>For song requests, message @soljinn_ on ig.</h2>
+
+<h2>For song requests go kill yourself.</h2>
